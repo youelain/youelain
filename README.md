@@ -1,3 +1,3 @@
-![Image](https://github.com/user-attachments/assets/65f84074-a3d0-4898-9938-a15f022f28be)
+![Image](https://github.com/user-attachments/assets/a9a1454b-4ffc-45a8-9a8b-7dcab6379d28
 
-ㅤme when life
+ me
